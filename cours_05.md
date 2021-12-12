@@ -2,10 +2,11 @@
 ## Rétrospective de la présentation 1
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+Je crois que j'ai parlé assez fort et que mes diapositives étaient assez belle et claire.
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
+Parler pendant 5 min, pour mon prochain oral je vais essayer de respecter le temps demander. Je vais préparer un plus grand texte.
+Pas utiliser des mots anglais. Pour éviter de dire des mots anglais je vais pratiquer mon français.
 
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+Celle de Kathrina parce qu'elle avait des belles images dans ses diapositives et elle avait un bon texte. 
