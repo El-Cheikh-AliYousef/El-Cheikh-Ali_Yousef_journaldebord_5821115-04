@@ -14,8 +14,7 @@ J'ai pris ce site parce que j'aime vraiment les effets utilisés. J'adore le fai
 ### ouigo
 http://letsplay.ouigo.com/
 
-
-J'ai pris ce lien parce que le site est un jeu. 
+J'ai pris ce lien parce que le site est un jeu. Les sites à aucun lag et il te permet de jouer à jeu très populaire. Il de la musique et des boutons à cliqué ce qui le rend plus amusant.
 
 ### Albinote
 https://albinotonnina.com/
