@@ -6,6 +6,7 @@ Je crois que j'ai parlé assez fort et que mes diapositives étaient assez belle
 
 ### Points à améliorer
 Parler pendant 5 min, pour mon prochain oral je vais essayer de respecter le temps demander. Je vais préparer un plus grand texte.
+
 Pas utiliser des mots anglais. Pour éviter de dire des mots anglais je vais pratiquer mon français.
 
 ### Présentation préférée
