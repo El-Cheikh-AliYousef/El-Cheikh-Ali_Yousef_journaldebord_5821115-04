@@ -1,8 +1,8 @@
 # Cours 2
 ## Présentation des liens
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. En quoi pourrait-il contribuer à votre démarche artistique? Pourquoi vous intéresse-t-il? Écrire 2 à 3 lignes par lien. 
+ https://www.ubisoft.com/fr-ca/
+J'ai pris ce lien parce que je suis fan d' 
 
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
