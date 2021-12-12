@@ -2,7 +2,8 @@
 ## Présentation des liens
 
  https://www.ubisoft.com/fr-ca/
-J'ai pris ce lien parce que je suis fan d' 
+ 
+J'ai pris ce lien parce que je suis fan d'Ubisoft. J'adore les jeux qu'ils font et un de mes reves et de travailler pour cette compagnie et meme de cree mon popre jeux. 
 
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
