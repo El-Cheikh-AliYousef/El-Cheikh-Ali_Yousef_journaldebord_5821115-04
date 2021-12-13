@@ -3,7 +3,7 @@
 Durée: 5 à 7 minutes
 
 ### Présentation
-Parlez du projet multimédia sélectionné. 
+Je vais vous parlez d'un jeu video. Le jeu est The walking dead telltale series. The walking dead est un jeu interactif parce que ces toi qui fait des descion.
 
 ### Carte heuristique
 Joindre la carte heuristique du projet. 
