@@ -1,4 +1,4 @@
 # Cours 10
 ## Création de carte heuristique
-Créer une carte euristique en lien avec votre présentation 2 et la joindre ici: 
 
+![carte drawio](https://user-images.githubusercontent.com/89647927/145738451-bb87ec65-d0f8-43c2-b1e3-124ba15c0674.png)
